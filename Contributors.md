@@ -1968,6 +1968,7 @@ vrushabhpatil48
 - Ronak Katariya
 - haha
 - MS
+- [Faigy Shternhel✨💕]![GitHub](https://github.com/FaigyShternhel)👋
 - [Anwar Rahim](https://anwarrahim.com) **Hello World! I am Data Scientist**
 - [switchbladechocolate](https://github.com/switchbladechocolate)
 - [Willian Luigi Carneri](https://github.com/willcarneri)
